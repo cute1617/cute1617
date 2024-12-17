@@ -1,5 +1,10 @@
-## Hi there 👋
-
+hai kal👋
+it's your birthday!! 
+i'm so sorry, air baru ngucapin
+intinya selamat ulang tahun ya
+panjang umur dan sehat selalu ya
+semoga.. aamiin
+bye
 <!--
 **cute1617/cute1617** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
